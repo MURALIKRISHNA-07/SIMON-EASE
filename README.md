@@ -4,7 +4,7 @@ SIMON EASE is a Memory based Puzzle game like Other SIMON Games
 
 DOWNLOAD THE APK AND PLAY IT ON YOUR TOUCH DEVICES, you can Download The APK FROM THIS LINK
 
-https://drive.google.com/file/d/1UBavpKcoO7zONnBLR1qg3dRAz57PysLq/view?usp=sharing
+https://drive.google.com/file/d/1nZDxnKe-0ygip-iaco2gfQxXNXegM3po/view?usp=sharing
 
 GAMEPLAY INSTRUCTIONS:
 
